@@ -2,4 +2,4 @@
 - 👀 I’m interested in all things IT (Cybersecurity, Development, System Administration)
 - 🌱 I’m currently learning development, and VOIP
 - 💞️ I’m looking to collaborate on anything I can be of use on.
-- 📫 How to reach me email Micah.Hack.18@gmail.com
+- 📫 To reach me email Micah.Hack.18@gmail.com
